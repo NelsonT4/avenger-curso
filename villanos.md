@@ -4,4 +4,4 @@
 * Modok
 
 * Vandalo Salvaje
-* Doomsday
+* Capitan América
